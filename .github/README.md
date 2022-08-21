@@ -2,7 +2,7 @@
     <br><b>😫 ARGxMUSIC⁩ 🎧
  😫</b><br>
 </p>
-<p align="center"><a href="https://t.me/ARG_CHATS"><img src="https://te.legra.ph/file/5e748c5ec4389b7c33f5a.jpg"></a></p>
+<p align="center"><a href="https://t.me/ARG_CHATS"><img src="https://telegra.ph/file/2cfe7b79a4d1ce0627f82.mp4"></a></p>
 
 Hey Baby this  is a advance &  one of the fastest Telegram Bot  that allows you to stream music on  Telegram Voice Chat.</b><br>
 <br>
